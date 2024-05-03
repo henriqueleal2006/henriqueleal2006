@@ -5,7 +5,7 @@
 
 Here are some ideas to get you started:
 
-- 🔭me camo **henrique**
+- 🔭me chamo **henrique**
 - 🌱 Estudante da geni cunha
 - 👯 **sou corinthians**
 - 🤔 tenho **18 anos**
